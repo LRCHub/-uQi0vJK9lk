@@ -1,0 +1,40 @@
+# The Offspring – The Kids Aren't Alright
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:38.91] When we were young the future was so bright (Whoa)
+[00:41.73] The old neighborhood was so alive (Whoa)
+[00:44.07] And every kid on the whole damn street (Whoa)
+[00:46.35] Was gonna make it big and not be beat
+[00:48.55] Now the neighborhood's cracked and torn (Whoa)
+[00:51.10] The kids are grown up but their lives are worn (Whoa)
+[00:53.37] How can one little street
+[00:55.60] Swallow so many lives?
+[01:06.60] 
+[00:57.69] Chances thrown, nothing's free
+[01:02.46] Longing for what used to be
+[01:07.28] Still it's hard, hard to see
+[01:12.18] Fragile lives, shattered dreams
+[01:17.23] (Go!)
+[01:19.73] 
+[01:36.92] Jamie had a chance, well she really did (Whoa)
+[01:39.18] Instead she dropped out and had a couple of kids (Whoa)
+[01:41.66] Mark still lives at home 'cause he's got no job (Whoa)
+[01:44.24] He just plays guitar and smokes a lot of pot
+[01:46.77] Jay committed suicide (Whoa)
+[01:49.02] Brandon OD'd and died (Whoa)
+[01:51.57] What the hell is going on?
+[01:53.89] The cruelest dream, reality
+[02:07.39] 
+[01:55.86] Chances thrown, nothing's free
+[02:00.45] Longing for what used to be
+[02:05.24] Still it's hard, hard to see
+[02:10.05] Fragile lives, shattered dreams
+[02:15.10] (Go!)
+[02:17.60] 
+[02:34.19] Chances thrown, nothing's free
+[02:39.24] Longing for what used to be
+[02:44.40] Still it's hard, hard to see
+[02:49.13] Fragile lives, shattered dreams
+```
